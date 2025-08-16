@@ -1,0 +1,1 @@
+# -Banking-Dynamic-Risk-Profiling-and-Performance-Analysis-in-Consumer-Lending-Using-Excel-
